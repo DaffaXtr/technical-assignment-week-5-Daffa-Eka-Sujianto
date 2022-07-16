@@ -1,0 +1,1 @@
+![test tambah foto](x%20store.png)
