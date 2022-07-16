@@ -1,1 +1,0 @@
-![testtambahfoto](x%20store.png)
